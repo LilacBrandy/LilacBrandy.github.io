@@ -1,2 +1,0 @@
-# LilacBrandy.github.io
-Fruitsplosion
